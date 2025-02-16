@@ -212,3 +212,99 @@ apparel and footware generate significant carbon emissions
 in response to all this, many are turning to mending as a way to buy less and throw away less by extending the life of the clothes they already have.
 
 11.3 million tons of textile waste went into US landfills just in 2018
+
+____
+
+It is a storm in a teacup: in terms of international waste disposal, we are talking about microscopic amounts of material.
+
+There’s still some time for a deal to shake out
+
+Some of Trump’s economic advisers have recently struck a different tone, arguing that the Fed needs to get inflation fully under control before lowering rates.
+
+In a speech last week, Dallas Fed President Lorie Logan said another such turn-of-the-year jump in prices “will be a signal that monetary policy has more work to do.”
+
+The tussle against this foe — or the specter of it — was waged off and on by officials for the better part of a generation, with critics contending Japan had become a poster child for seemingly terminal decline.
+
+By 2003, inflation in the US had been so contained over the prior decade that policymakers fretted it had become too much of a good thing and the risk of a Japan scenario — once considered crazy — needed to be taken seriously.
+
+That has perhaps created a fear over being too blasé on deflation. But the mistake the government risks repeating is being out of touch with the economy — and ignoring the issues facing everyday voters and consumers, who these days are struggling with higher grocery and utility bills.
+
+
+While continuing to be cautious about the future, Japan should admit that at least for now it has won the fight. Otherwise, deflation risks becoming another of the interminable debates that drag on much too long in the country — from the future role of nuclear energy, to the use of surnames for married couples, to the current, excruciating debate over whether an income tax exemption should be merely modest, or really modest.
+
+That these issues are still being chewed over when the broader world is moving at light speed — from the exponential growth of AI capability to the flurry of executive orders from the Trump administration — is particularly galling.
+
+So while his reluctance to embrace Japan’s contemporary economy is grounded in harsh experience, it’s well past time for the political elite to move on. If you have a win, regardless of its provenance, take it. It’s good advice for any leader — and dare we say it, some useful forward guidance.
+
+my parents are going on 52 years of marriage
+
+read between the lines
+
+Attacks on "political correctness" can be a dog whistle to rally white voters.
+
+----
+
+narrow it down to ...
+
+We can all exhibit some of these beliefs or behaviors in one way or another, and none of them is more adaptive or maladaptive than the other, it's all about balance.
+
+what that can look like behaviorally is what some people call noble poverty, the idea that I have to not make a lot of money, because if I do make a lot of money or if I do have money, then that means that I'm a bad person.
+
+
+ I think that we all exist in between all four of these kind of categories. But there tends to be, for most people, at least one or two that really stand out at any point, but I don't think that they're static throughout the course of our lives.
+
+Having conversations about that can really help reduce the risk of that kind of conflict building up.
+
+We went running by the beach, watched the sunset. But we reached a point about 10 days in when things took a turn. Our string of beautiful weather ended.
+
+
+“The perfidy and deceit are of Shakespearean proportions,” Musk’s lawyers declared. Altman said Musk was bitter he left before the company succeeded.
+
+
+The danger to Europe lies in the interplay of three crucial factors: American disengagement, western European denialism and Russian determination.
+
+
+
+
+
+Washington has been explaining for years to anyone willing to listen how Europe is slipping down its list of strategic global priorities — and the object lesson of the very different US approach to defending Israel against attack compared with defending Ukraine should have comprehensively **rammed the point home well** before Trump’s inauguration.
+
+
+
+
+If these happen at the same speed as the new administration’s **slash-and-burn tactics** in other areas, they will be far too fast for Europe to react or compensate, leaving a dangerous and inviting gap for Russian assertiveness.
+
+Europe, meanwhile, remains divided between the front-line states that recognise the risk and the urgency of mitigating it, and much of the continent’s western hinterland that remains semi-quiescent.
+
+
+Trump was relegated to sort of a spectator in his own oval office and only sitting there, nodding and occasionally chiming in.
+
+what was really striking about it is...
+
+has gone above and beyond in many ways to try to prove loyalty to Trump
+
+I want to bring you guys in,
+
+what immediately stood out about this scene was not the fact in Elon Musk was there defending and justifying his unusual rolo, it was just the fact of him holding court next to a sittting Trump for 30 minutes in this room that is the very definition of American Presidential Power, it was the stature that it conferred on Musk .
+
+a musician/actor/artist of world/international/national stature
+
+there's been this running motif that Musk is a kind of co-president and Time Magazine went so far over the past couple days as to put musk on the cover of its latest issue
+
+this didn't seem to combat that, or did it?
+
+I would have to say that two things really jumped out at me.
+
+he promised to help us but he does put some conditions on it.
+
+that's out of the window
+
+I think we are underestimating the element of imperilism that he is hinted at.
+
+if what's partly going on here is that
+
+Lewis was annoyed that Adam did not show enough respect and deference to him.
+
+that's what appeals to him
+
+---
