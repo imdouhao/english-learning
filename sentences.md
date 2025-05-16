@@ -308,3 +308,209 @@ Lewis was annoyed that Adam did not show enough respect and deference to him.
 that's what appeals to him
 
 ---
+
+
+The men allegedly overpaid contracts using a slush fund to conceal the bribes.
+
+it's ironic that you and him will approach it in a very similar way, but anticipate different outcomes.
+
+
+I think that is where, people get a little unhappy about the whole arrangement.
+
+we have a level of abstraction, and we have a level of granular. the point is the way that these two comingle/meet i think becomes problematic
+
+there is no world in which the decarbonization strategy works if we cannot increase by orders of magnitude how fast we are building transmission lines.
+
+New great powers typically rise to dominance while the old order squabbles obliviously.
+
+Ghosn himself was felt for years to embody “Davos Man,” the globe-trotting bosses who made a pilgrimage to a Swiss ski resort for the annual World Economic Forum.
+
+Its rivals don’t have much opportunity to enjoy the schadenfreude.
+
+
+A world where the major carmakers hibernate at home will be an unfriendly one for almost every national champion except those from China, the one place with the scale, manufacturing expertise, and technological edge in EVs to dominate all others.
+
+The tectonic plates were already shifting.
+
+
+ The stock is now trading like scrap metal, at less than a quarter of the value of the assets on its books.
+
+
+an actor who shuns publicity
+
+Ceasefire negotiations in doubt after Russian president shuns trip
+
+The impromptu pledge has increasingly become an albatross around Musk’s neck
+
+
+It was an odd lapse for one who is normally so polite.
+
+As Doge has struggled to make headway, it has strained to paint a positive picture:
+
+
+Doge, which Trump claimed had the potential to be as seismic as the Manhattan Project to build the first nuclear weapon, has fallen short of Musk’s own lofty expectations.
+
+Doge’s emissaries appeared to have little appreciation of what branches of government they were targeting actually did, alarming some inside the White House, according to people familiar with the matter.
+
+
+ use a “scalpel rather than the hatchet” when downsizing government.
+
+ Even where the claims can be matched to contracts, the maths for savings are contestable.
+
+For his part, Musk last month seemed unsure of how consequential Doge would be without him at the helm.
+
+She is, figuratively speaking, holding a gun to his head.
+
+if you are really serious about bringing manufacturing back to US, you really need a carrot approach, with more carrots and fewer sticks.
+
+China on Wednesday suspended curbs on exports of rare earths and other goods and technologies for military use targeting 28 US entities as part of the trade detente struck between the world’s two largest economies.
+
+The move follows an agreement by China and US to temporarily lower tariffs levied against each other’s products — the first major de-escalation in the trade row that was touted by US President Donald Trump as a “total reset” of bilateral ties.
+
+
+that was the innitial kernel that kind of sparked the whole idea.
+
+it's funny how narrow our conception of homelessness is, right? because the most visible form here in Los Angeles, you know, it's tent encampments.
+
+Housing shortages permit landlords to gouge their renters.
+
+price gouging is widespread
+
+He had gouged her cheek with a screwdriver.
+
+The man's eyes had been gouged out.
+
+if I could just, you know, tell you really quickly the story of..., because I think their situation totally illustrates what you are describing.
+
+we are familiar with James Baldwin's line about how extremely expensive it is to be poor in this country.
+
+The precariat, the poorest and most deprived grouping, made up 15% of the population.
+
+the precarity of the housing market
+
+growing economic precarity
+
+they got priced out their rapidly gentrifying neighborhood.
+
+they became part of this phenomenon of ...
+
+they think they can finally achieve their aspirations and they actually do for a while, but..
+
+
+what they realise is that the ground has shifted under their feet.
+
+
+all those business models have sprung up to capitalize on this housing crisis.
+
+they were hanging on by a thread.
+
+long story short, they have moved into an apartment unbeknownst to them that is owned by...
+
+I won't get into all the details, but because of some personal circumstances,
+
+they lose their home that's kind of the first domino that falls.
+
+even going back to your original question about the myths and misconceptions of homelessness
+
+we tend to think of people experiencing homelessness is kind of on the fringes of society. even spartially like you know homelessness in our minds tends to be confined to like Skid Row area.
+
+we tend to think of homelessness as springing up in sort of areas of like extreme poverty, like images that have proliferated since 1980s when mass homelessness first exploded in the US.
+
+our economy has created this role of precarity and keeps people in it, purposefully.
+
+provides you only enough to barely scrape by.
+
+they system has created this tier of our economy and we refuse to even count it statistically, is there another way to look at it or am I right?
+
+It's important to remembr that work can take many forms, it's not just like wage labor that is work. taking care of your own kids like many moms were doing for years, they were told, no you have to go like join in the formal labor force in order to receive benefits.
+
+
+we see these folks as being as sort of refuse of the system or an unfortunate byproduct when in fact they're as intricately woven into it as the rest of us are
+
+we are all part of the system that has produced this.
+
+In many countries education is still the prerogative of the rich.
+
+Yet few outside China’s bureaucratic circles can clearly delineate this process.
+
+
+ A few well-timed lines, delivered with confidence and fluency, can go further than pages of boilerplate.
+
+Li Chenggang’s proverb in Geneva might have seemed like a throwaway line. But it worked because it sounded, well, human. As China navigates a more uncertain economic future, it may need more of that.
+
+ The failure wasn’t just one of policy; it was often one of persuasion.
+
+ The line wasn’t just rhetorical flair. It was a deliberate effort to frame China’s reform agenda in globally familiar language—and to signal that the CSRC is positioning itself as a guardian of long-term market health, not just a compliance enforcer.
+
+managing market expectations is as much art as science.
+
+I see parallels.
+
+While the jury is still out on how disruptive DeepSeek is to US big tech, its arrival has pointed to a new way forward for China, and shows that growth is still possible despite President Donald Trump’s tariffs.
+
+There was a dearth of reliable information on the subject.
+
+
+The share sale will be the biggest of its kind globally so far this year, in a boon for the territory after a dearth of Chinese corporate listings in recent years.
+
+as you can tell i'm a little triggered
+
+the only way we can achieve this is the following, full stop:
+
+
+I had to read the letter twice before I could take it all in.
+
+She was telling me he was dead, and I couldn't take it in.
+
+
+let's bust right into it. I'm just cursious, give us sort of the state of play in China on the ground, the citizens, businesses, government officials and their response to the trade war and tariffs and what is the general vibe if you will in their response and perception of what is going on?
+
+there was a rivival of cold war, korean war rhetoric about being able to defend against US hegemony.
+
+find ways to cushion the blow
+
+china had more political appetitie to increase the tariffs.
+
+We hope everything will go swimmingly.
+
+The committee refused to countenance his proposals.
+
+Trump is the biggest dove in a house full of hawks.
+
+we have really heterogeneous outcomes coming out of the us
+
+the heterogeneous population of the United States
+
+launch a charm offensive
+
+China's dependence on exports will remain being a theme going forward.
+
+null and void
+
+
+
+
+Barring accidents, we should arrive on time.
+
+
+he showed a propensity for violence
+
+her propensity for accepting a challenge.
+
+the country was now on the edge of a precipice
+
+The cultural life of the country will sink into atrophy unless more writers and artists emerge.
+
+Memory/muscle can atrophy through lack of use.
+
+I'm still willing to entertain the idea.
+
+The old man hobbled across the road.
+
+Our work is hobbled by the amount of bureaucracy involved.
+
+
+Meta’s recent challenges mirror stumbles or delays at other top AI companies that are trying to release their next big state-of-the-art models. Some researchers see the pattern as evidence that future advances in AI models could come at a far slower pace than in the past, and at tremendous cost.
+
+
+His program was full of irredentism and ultra-nationalism.
